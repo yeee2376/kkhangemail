@@ -1,2 +1,0 @@
-# Alex
-Sales page 
